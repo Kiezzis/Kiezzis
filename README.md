@@ -3,7 +3,8 @@
 #1 SKYSTAR CONSUMER
 
 <p align=left>
-<img width=240 height=240 alt=<img width="561" height="561" alt="image" src="https://github.com/user-attachments/assets/8290530b-d167-474b-a890-5d75671eb3b6" /> please int, EVEN WHEN I'M AFK. unless I have "DNI" in my name!
+<img <img width="1318" height="340" alt="image" src="https://github.com/user-attachments/assets/58b844af-037f-4d9a-aca5-29f4e283434a" />
+ please int, EVEN WHEN I'M AFK. unless I have "DNI" in my name!
 
 <p align=center>
 ALWAYYSS W2I IF IM AFK!
