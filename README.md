@@ -1,6 +1,6 @@
 <p align=center>
 <img width=1757 height=1147 alt=<img width="822" height="537" alt="image" src="https://github.com/user-attachments/assets/cf4a0a93-8398-4a1f-9963-e94df16b3250" />
-### #1 SKYSTAR CONSUMER
+## NO.1 SKYSTAR CONSUMER
 
 <p align=center>
 <img <img width="1318" height="340" alt="image" src="https://github.com/user-attachments/assets/58b844af-037f-4d9a-aca5-29f4e283434a" />
