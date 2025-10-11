@@ -10,4 +10,4 @@ don't copy my ponies.
 <p align=center>
 I'm talkative when I feel like it. My silence don't mean I ignore/hate you, I may get disctracted or multitasking. Or maybe i just dont know what to say.
 
-  <img width=300 height=300 alt=<img width="561" height="561" alt="image" src="https://github.com/user-attachments/assets/be0a3215-1499-44fe-90bd-a7f5203e2938" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/be0a3215-1499-44fe-90bd-a7f5203e2938" />
