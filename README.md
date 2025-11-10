@@ -1,3 +1,5 @@
+!! this is still working in progress !!
+
 <p align=center>
 Hello hello!!! I'm kiez/Viz!
 I'm genderfluid so uhh I allow you to use any pronounce except "it" ,, no hate to people who use that pronounce btw,! <3
