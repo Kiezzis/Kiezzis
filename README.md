@@ -22,3 +22,5 @@ TWTER/X : kiezzis
  Patreon : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv)
 
 # STRAWPAGE WORKING IN PROGRESS!!
+
+yes third one, ik
