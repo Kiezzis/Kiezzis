@@ -11,16 +11,13 @@ I would AFK a lot, like,, really a lot. I often go online just to AFK or show th
 ...... this sounds stupid now when I re-read it.
 
 ----------------------------**---------------------------`,
-# Social!
+~ Social!
 
 Discord : kieezzis.v >> ask first!
 TWTER/X : kiezzis
 
 ----------------------------**---------------------------`,
-# dig some more infos about me!
+~ dig some more infos about me!
 
- Patreon : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv)
-
-# STRAWPAGE WORKING IN PROGRESS!!
-
-yes third one, ik
+ Patreon   : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv)
+ Strawpage : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
