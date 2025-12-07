@@ -1,35 +1,35 @@
 !! this is still working in progress !!
 
 <p align=center>
-Hello hello!!! I'm kiez/Viz!
-I'm genderfluid so uhh I allow you to use any pronounce except "it" ,, no hate to people who use that pronounce btw,! <3
+𝙷𝚎𝚕𝚕𝚘 𝚑𝚎𝚕𝚕𝚘!!! 𝙸'𝚖 𝚔𝚒𝚎𝚣/𝚅𝚒𝚣!
+𝙸'𝚖 𝚐𝚎𝚗𝚍𝚎𝚛𝚏𝚕𝚞𝚒𝚍 𝚜𝚘 𝚞𝚑𝚑 𝙸 𝚊𝚕𝚕𝚘𝚠 𝚢𝚘𝚞 𝚝𝚘 𝚞𝚜𝚎 𝚊𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚌𝚎 𝚎𝚡𝚌𝚎𝚙𝚝 "𝚒𝚝" ,, 𝚗𝚘 𝚑𝚊𝚝𝚎 𝚝𝚘 𝚙𝚎𝚘𝚙𝚕𝚎 𝚠𝚑𝚘 𝚞𝚜𝚎 𝚝𝚑𝚊𝚝 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚌𝚎 𝚋𝚝𝚠,! <𝟹
 
 ----------------------------**---------------------------`,
 
-╰┈➤ `12- DNI!!! ``
- 
-╰┈➤ `C+H freely unless my name say otherwise !
+╰┈➤ `𝟷𝟸- 𝙳𝙽𝙸!!! ``   
 
-╰┈➤ `I sometimes !JOKE! sexually, tell me if I made you uncomfy!! " better tell now before too late "
+╰┈➤ `𝙲+𝙷 𝚏𝚛𝚎𝚎𝚕𝚢 𝚞𝚗𝚕𝚎𝚜𝚜 𝚖𝚢 𝚗𝚊𝚖𝚎 𝚜𝚊𝚢 𝚘𝚝𝚑𝚎𝚛𝚠𝚒𝚜𝚎 !  
 
-╰┈➤ `Mostly offtab/AFK , so might or might not slow response
+╰┈➤ `𝙸 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 !𝙹𝙾𝙺𝙴! 𝚜𝚎𝚡𝚞𝚊𝚕𝚕𝚢, 𝚝𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝙸 𝚖𝚊𝚍𝚎 𝚢𝚘𝚞 𝚞𝚗𝚌𝚘𝚖𝚏𝚢!! " 𝚋𝚎𝚝𝚝𝚎𝚛 𝚝𝚎𝚕𝚕 𝚗𝚘𝚠 𝚋𝚎𝚏𝚘𝚛𝚎 𝚝𝚘𝚘 𝚕𝚊𝚝𝚎 " . 𝙳𝚎𝚜𝚙𝚒𝚝𝚎 𝚝𝚑𝚊𝚝, 𝙸'𝚖 𝚙𝚛𝚎𝚝𝚝𝚢 𝚌𝚑𝚒𝚕𝚕 𝚊𝚗𝚍 𝚏𝚛𝚒𝚎𝚗𝚍𝚕𝚢.
 
-╰┈➤ `INT freely unless my name say DNI.
+╰┈➤ `𝙼𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 𝚖𝚒𝚐𝚑𝚝 𝚘𝚛 𝚖𝚒𝚐𝚑𝚝 𝚗𝚘𝚝 𝚜𝚕𝚘𝚠 𝚛𝚎𝚜𝚙𝚘𝚗𝚜𝚎!
+
+╰┈➤ `𝙸𝙽𝚃 𝚏𝚛𝚎𝚎𝚕𝚢 𝚞𝚗𝚕𝚎𝚜𝚜 𝚖𝚢 𝚗𝚊𝚖𝚎 𝚜𝚊𝚢 𝙳𝙽𝙸.
 
 ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
 ----------------------------**---------------------------`,
 
-~ Social!
+~ 𝚂𝚘𝚌𝚒𝚊𝚕!
 
-Discord : kieezzis.v >> ask first!
+𝙳𝚒𝚜𝚌𝚘𝚛𝚍 : 𝚔𝚒𝚎𝚎𝚣𝚣𝚒𝚜.𝚟 >> 𝚊𝚜𝚔 𝚏𝚒𝚛𝚜𝚝! 
 
-TWTER/X : kiezzis
+!-𝚛𝚎𝚙𝚕𝚊𝚌𝚒𝚗𝚐 𝚝𝚑𝚒𝚜 𝚠𝚒𝚝𝚑 𝚝𝚒𝚔𝚝𝚘𝚔 𝚕𝚊𝚝𝚎𝚛-!
 
 ----------------------------**---------------------------`,
 
-~ dig some more infos about me!
+~ 𝙳𝚒𝚐 𝚜𝚘𝚖𝚎 𝚖𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎!
 
- Patreon   : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv) i don't use this anymore uhm, im gonna replace this with pronounce page LATER
+ Patreon   : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv) i don't use this anymore uhm, im gonna replace this with pronounce page LATER, i need to edit smth in there lol
 
  Strawpage : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
