@@ -6,18 +6,29 @@ I'm genderfluid so uhh I allow you to use any pronounce except "it" ,, no hate t
 
 ----------------------------**---------------------------`,
 
-I would AFK a lot, like,, really a lot. I often go online just to AFK or show that I'm still alive. /sarcasm. ALWAYSSSS whisper to interact with me when I seem to be AFK. I prefered to be alone 24/7 but I don't mind mutuals/friends (idk the difference of those two lolol) cuddles with me while I'm AFK. Just because I'm offline a lot, doesn't mean I won't come back btw!!! If you're a close friend of mine, I will try to find a way to tell you if I lost my account, or whatever happened. If I can't, then I'm so sorry, dear friend.
-`` I can be very dry sometimes. Maybe I'm not in the mood, or maybe just feel mentally drained. When I'm upset, it's best to leave me alone. English is not my first language, so please don't overeact, make fun of me, or anrgy at me for using the wrong words in my sentence. Sometimes I say offensive sentense without even realizing or meaning it.
-...... this sounds stupid now when I re-read it.
+<p align=center>
+╰┈➤ `12- DNI!!! ``
+╰┈➤ `C+H freely unless my name say otherwise !
+╰┈➤ `I sometimes !JOKE! sexually, tell me if I made you uncomfy!! " better tell now before too late "
+╰┈➤ `Mostly offtab/AFK , so might or might not slow response
+╰┈➤ `INT freely unless my name say DNI.
 
+<p align=center>
+ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+
+<p align=center>
 ----------------------------**---------------------------`,
 
+<p align=center>
 ~ Social!
 
+<p align=center>
 Discord : kieezzis.v >> ask first!
 
+<p align=center>
 TWTER/X : kiezzis
 
+<p align=center>
 ----------------------------**---------------------------`,
 
 ~ dig some more infos about me!
