@@ -6,34 +6,24 @@ I'm genderfluid so uhh I allow you to use any pronounce except "it" ,, no hate t
 
 ----------------------------**---------------------------`,
 
-<p align=center>
 ╰┈➤ `12- DNI!!! ``
  
- <p align=center>
 ╰┈➤ `C+H freely unless my name say otherwise !
 
-<p align=center>
 ╰┈➤ `I sometimes !JOKE! sexually, tell me if I made you uncomfy!! " better tell now before too late "
 
-<p align=center>
 ╰┈➤ `Mostly offtab/AFK , so might or might not slow response
 
- <p align=center>
 ╰┈➤ `INT freely unless my name say DNI.
 
-<p align=center>
 ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
-<p align=center>
 ----------------------------**---------------------------`,
 
-<p align=center>
 ~ Social!
 
-<p align=center>
 Discord : kieezzis.v >> ask first!
 
-<p align=center>
 TWTER/X : kiezzis
 
 ----------------------------**---------------------------`,
