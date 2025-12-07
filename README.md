@@ -22,6 +22,6 @@ TWTER/X : kiezzis
 
 ~ dig some more infos about me!
 
- Patreon   : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv)
+ Patreon   : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv) i don't use this anymore uhm, im gonna replace this with pronounce page LATER
 
  Strawpage : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
