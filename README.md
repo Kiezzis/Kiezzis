@@ -1,4 +1,4 @@
-# SIGN MY TREE !
+# SIGN MY TREE ! 🎄
 
 !! this is still working in progress !!
 
