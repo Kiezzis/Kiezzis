@@ -2,8 +2,6 @@
 
 !! this is still working in progress !!
 
-![GitHub Profile Views](https://komarev.com/ghpvc/?username=Kiezzis)
-
 <p align=center>
 𝙷𝚎𝚕𝚕𝚘, 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙺𝚒𝚎𝚣𝚣𝚒𝚜 / 𝚅𝚒𝚣 𝚘𝚛 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚋𝚢 𝚖𝚢 𝚔𝚒𝚗𝚜 𝚗𝚊𝚖𝚎.
 
