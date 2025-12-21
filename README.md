@@ -47,6 +47,6 @@
 
 ~ 𝙳𝚒𝚐 𝚜𝚘𝚖𝚎 𝚖𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎!
 
- Patreon   : [V. Kiezzis ⪨](patreon.com/Kiezzisvkv) i don't use this anymore uhm, im gonna replace this with pronounce page LATER, i need to edit smth in there lol
+ Patreon   : [kieezzis.v]([patreon.com/Kiezzisvkv](https://en.pronouns.page/@kieezzis.v))
 
  Strawpage : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
