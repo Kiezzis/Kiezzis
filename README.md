@@ -1,6 +1,3 @@
-<p align=center>
-  <img src=[https://cdn.discordapp.com/attachments/1176056495423623188/1452217601530003548/Untitled669_20251221163239.png?ex]()>
-
 # [Sign My Tree](https://colormytree.me/2025/01KBY8G13YBCM5KNNMSHZFACFH) 🎄 !
 
 !! this is still working in progress !!
