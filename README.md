@@ -47,6 +47,6 @@
 
 ~ 𝙳𝚒𝚐 𝚜𝚘𝚖𝚎 𝚖𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎!
 
- Patreon   : [kieezzis.v]([patreon.com/Kiezzisvkv](https://en.pronouns.page/@kieezzis.v))  -- It's still bit ugly, might edit again another time.
+ Pronounce Page : [kieezzis.v](https://en.pronouns.page/@kieezzis.v)  -- It's still bit ugly, might edit again another time.
 
  Strawpage : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
