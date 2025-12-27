@@ -21,6 +21,8 @@
 
 ╰┈➤ `𝟷𝟸- 𝙳𝙽𝙸!!! ``   
 
+╰┈➤ `DNC my pony. Copy = Parmanently blocked/hide.
+
 ╰┈➤ `𝙲+𝙷 𝚏𝚛𝚎𝚎𝚕𝚢 𝚞𝚗𝚕𝚎𝚜𝚜 𝚖𝚢 𝚗𝚊𝚖𝚎 𝚜𝚊𝚢 𝚘𝚝𝚑𝚎𝚛𝚠𝚒𝚜𝚎 !  
 
 ╰┈➤ `𝙸 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 !𝙹𝙾𝙺𝙴! 𝚊𝚋𝚘𝚞𝚝 𝚜𝚎𝚡𝚞𝚊𝚕 𝚜𝚝𝚞𝚏𝚏, 𝚝𝚎𝚕𝚕 𝚖𝚎 𝚒𝚏 𝙸 𝚖𝚊𝚍𝚎 𝚢𝚘𝚞 𝚞𝚗𝚌𝚘𝚖𝚏𝚢!! " 𝚋𝚎𝚝𝚝𝚎𝚛 𝚝𝚎𝚕𝚕 𝚗𝚘𝚠 𝚋𝚎𝚏𝚘𝚛𝚎 𝚝𝚘𝚘 𝚕𝚊𝚝𝚎 " . 𝙳𝚎𝚜𝚙𝚒𝚝𝚎 𝚝𝚑𝚊𝚝, 𝙸'𝚖 𝚙𝚛𝚎𝚝𝚝𝚢 𝚌𝚑𝚒𝚕𝚕 𝚊𝚗𝚍 𝚏𝚛𝚒𝚎𝚗𝚍𝚕𝚢.
@@ -49,4 +51,6 @@
 
  Pronounce Page : [kieezzis.v](https://en.pronouns.page/@kieezzis.v)  -- It's still bit ugly, might edit again another time.
 
- Strawpage : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
+ Strawpage      : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
+
+ Guns.lol       : [Kiezzis / Viz](https://guns.lol/kiezzis.vii) idk what this does.
