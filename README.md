@@ -53,4 +53,4 @@
 
  Strawpage      : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
 
- Guns.lol       : [Kiezzis / Viz](https://guns.lol/kiezzis.vii) idk what this does.
+ Guns.lol       : [Kiezzis / Viz](https://guns.lol/kiezzis.vii) cool stuff
