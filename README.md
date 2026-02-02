@@ -47,8 +47,8 @@
 
 ~ 𝙳𝚒𝚐 𝚜𝚘𝚖𝚎 𝚖𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚜 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎!
 
- Pronounce Page : [kieezzis.v](https://en.pronouns.page/@kieezzis.v)  -- OUTDATED . MAKING A NEW ONE!
+ Pronounce Page : [kieezzis.v](https://en.pronouns.page/@kieezzis.v) -- not gonna make a new one im too lazy, outdated
 
- Strawpage      : [Vizkies](https://vizvkiez.straw.page) it's better on PC/laptop, btw. if you open it on mobile, it looks very messy, trust me.
+ Strawpage      : [Vizkies](https://kkiiezes.straw.page)
 
  Guns.lol       : [Kiezzis / Viz](https://guns.lol/kiezzis.vii) cool stuff
