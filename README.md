@@ -50,3 +50,8 @@
  Strawpage      : [kkiiezes](https://kkiiezes.straw.page)
 
  Guns.lol       : [Kiezzis / Viz](https://guns.lol/kiezzis.vii) cool stuff
+
+ Carrd          : [kiezzis coms and info](https://kiezzisinfo.carrd.co) basically all my basic info stuff, except theres comms info.
+
+ <p align=center>
+ NO I AM NOT FULLY PREPARED FOR COMS! WORKING IN PROGRESS.
